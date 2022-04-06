@@ -2,7 +2,7 @@
 - 👀 I’m interested in video games, hiking & camping, martial arts
 - 🌱 I’m currently learning how to aquascape, and coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me reddienettie@yahoo.com
+- 📫 How to reach me nettielavinia.snyder@gmail.com
 
 <!---
 NettieSnyder/NettieSnyder is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
